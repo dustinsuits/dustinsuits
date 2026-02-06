@@ -81,11 +81,6 @@ Bucks County, Pennsylvania
 *Nov 2012 – Mar 2013*  
 - Managed live audio for basketball games and events
 
-**Sound Designer** — *Atomic Cheesecake Productions*  
-*Jun 2008 – Dec 2012*  
-- Sound design, mixing, and foley for short films
-- Work screened internationally, including *Plasticity 3D*
-
 ---
 
 ## 🧰 Skills & Interests
