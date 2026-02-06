@@ -53,7 +53,7 @@ Bucks County, Pennsylvania
 
 ---
 
-### **Apple**
+### **Apple Inc.**
 *8 years*
 
 **Genius**  
